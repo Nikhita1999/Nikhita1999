@@ -19,7 +19,7 @@
 ### 💼 Experience
 | Company | Role | Time |
 |:-------|:----|:----|
-| Technology World Creater | Data Analyst | 2024 - Present |
+| Technology World Creater | Data Analyst | 2025- Present |
 
 ---
 
